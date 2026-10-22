@@ -6,7 +6,7 @@ ${\space}$
 
 ${\space}$
 
-${\color{#dc865d} Sign}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
+${\color{#5b1e45} Sign}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
 
 ${\space}$
 ${\space}$
