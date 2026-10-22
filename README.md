@@ -10,8 +10,6 @@ ${\color{#5b1e45} Sign}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
 
 ${\space}$
 ${\space}$
-${\space}$
-
 
 <details>
 <summary>Click to expand</summary>
@@ -21,3 +19,6 @@ ${\space}$
 ${\color{#dfc18e} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
 
 </details>
+
+${\space}$
+
