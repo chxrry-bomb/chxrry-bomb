@@ -13,7 +13,11 @@ ${\space}$
 ${\space}$
 
 
+<details>
+<summary>Click to expand</summary>
+
 <img width="400" height="400" alt="kirkbakfromcathy" src="https://github.com/user-attachments/assets/b770be3f-babf-43c7-b18f-15579dc65a69" />
 
 ${\color{#dfc18e} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
 
+</details>
