@@ -11,7 +11,7 @@ ${\color{#d4a65e} \space 𝔰𝔞𝔣𝔢𝔱𝔶.}$
 
 ${\space}$
 
-<img width="500" height="500" alt="krbkkidstintedcroppedandtexturednobg" src="https://github.com/user-attachments/assets/392b1828-4ea2-4f85-b6c3-5b25dbe87894" /> 
+<img width="684" height="684" alt="krbkkids" src="https://github.com/user-attachments/assets/e1ca64c7-f950-45d5-96f1-af519662dc54" />
 
 ${\space}$
 
