@@ -18,7 +18,7 @@ ${\space}$
 
 <img width="400" height="400" alt="kirkbakfromcathy" src="https://github.com/user-attachments/assets/b770be3f-babf-43c7-b18f-15579dc65a69" />
 
-${\color{#a3535f} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
+${\color{#a3535f} ╰┈➤ \space from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
 
 <img width="436" height="262" alt="lena (@pearchums) on X" src="https://github.com/user-attachments/assets/430e601a-5468-4b2a-ac8c-bd2a4203cd1f" />
 
