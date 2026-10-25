@@ -14,6 +14,8 @@ ${\space}$
 <details>
 <summary>${\color{#dfc18e} click}$</summary>
 
+${\space}$
+
 <img width="400" height="400" alt="kirkbakfromcathy" src="https://github.com/user-attachments/assets/b770be3f-babf-43c7-b18f-15579dc65a69" />
 
 ${\color{#a3535f} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
