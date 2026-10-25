@@ -20,6 +20,9 @@ ${\space}$
 
 ${\color{#a3535f} ╰┈➤ \space from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
 
+<img width="633" height="542" alt="image" src="https://github.com/user-attachments/assets/3a9aa90a-46a6-490b-98b2-c5a5edfa4164" />
+
+
 <img width="436" height="262" alt="lena (@pearchums) on X" src="https://github.com/user-attachments/assets/430e601a-5468-4b2a-ac8c-bd2a4203cd1f" />
 
 
