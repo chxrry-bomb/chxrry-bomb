@@ -18,7 +18,7 @@ ${\space}$
 
 ${\color{#a3535f} from \space}$ ${\color{#e0b577} }$ [Cathyy](https://github.com/obsessedgojo)
 
-<img width="736" height="512" alt="lena (@pearchums) on X" src="https://github.com/user-attachments/assets/430e601a-5468-4b2a-ac8c-bd2a4203cd1f" />
+<img width="536" height="312" alt="lena (@pearchums) on X" src="https://github.com/user-attachments/assets/430e601a-5468-4b2a-ac8c-bd2a4203cd1f" />
 
 
 </details>
