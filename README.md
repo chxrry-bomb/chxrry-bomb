@@ -16,7 +16,7 @@ ${\space}$
 
 ${\space}$
 
-<img width="524" height="510" alt="krbk club" src="https://github.com/user-attachments/assets/eadf63be-b5e9-47fd-8b7d-2a4630f177dc" />
+<img width="424" height="410" alt="krbk club" src="https://github.com/user-attachments/assets/eadf63be-b5e9-47fd-8b7d-2a4630f177dc" />
 
 <img width="400" height="400" alt="kirkbakfromcathy" src="https://github.com/user-attachments/assets/b770be3f-babf-43c7-b18f-15579dc65a69" />
 
